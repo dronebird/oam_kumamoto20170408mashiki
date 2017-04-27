@@ -1,0 +1,1 @@
+# oam_kumamoto20170408mashiki
